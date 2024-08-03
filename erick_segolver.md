@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ericksegolver
+- 👀 I am an engineer but I have been developing as a data analyst. My goal is to continue developing myself, but this time as an intelligence analyst. 
+- 🌱 I’m currently learning data analytics
+- 💞️ I am passionate about collecting information, analyzing it and generating intelligence for decision making..
+- 😄 Now I have a consultancy where I focus on HR development and problem solving.
+- 📫 You may to reach me in https://www.linkedin.com/in/erick-segovia-olvera/
+- ⚡ Fun fact: I'm musician, actor and love cooking.
