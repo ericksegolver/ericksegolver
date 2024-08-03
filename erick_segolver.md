@@ -4,4 +4,4 @@
 - 💞️ I am passionate about collecting information, analyzing it and generating intelligence for decision making..
 - 😄 Now I have a consultancy where I focus on HR development and problem solving.
 - 📫 You may to reach me in https://www.linkedin.com/in/erick-segovia-olvera/
-- ⚡ Fun fact: I'm musician, actor and love cooking.
+- ⚡ Fun fact: I'm musician, actor and love cooking
